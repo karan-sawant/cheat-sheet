@@ -1,0 +1,1 @@
+This is cheat sheet of usefull resources to used in life.
